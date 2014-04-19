@@ -14,3 +14,8 @@
   - 2:22 -- breakdown
 - **Wild Beasts -- Wanderlust**
   - 2:35 -- synth pad
+- **Wild Beasts -- Daughters**
+  - 3:10 -- echoing synth
+- **Avey Tare's Slasher Flicks -- A Sender**
+  - 2:15 -- ohhhhhhh pitch delay
+- 
