@@ -1,3 +1,3 @@
-# Favorite Music of 2014
+# Lists
 
-I'm trying out keeping my lists-in-progress here.
+Favorite album, songs, sounds, movies, and more. Subject to constant change. Yet out of sync.
