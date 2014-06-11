@@ -1,3 +1,3 @@
 # Lists
 
-Favorite album, songs, sounds, movies, and more. Subject to constant change. Yet out of sync.
+Favorite album, songs, sounds, movies, and more. Subject to constant change. As yet out of sync with my scattered lists.
