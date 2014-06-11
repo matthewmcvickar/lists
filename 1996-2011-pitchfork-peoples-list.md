@@ -5,7 +5,7 @@ In 2012, Pitchfork built a tool for readers to make their personal 100 best albu
 
 ## Top 100
 
-As of the deadline, 
+As of the deadline, in August 2012.
 
 In order of most-to-lesser favorites.
 
