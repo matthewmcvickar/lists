@@ -1,24 +1,178 @@
 # Favorite Songs of 2014
 
+On Spotify: http://open.spotify.com/user/matthewmcvickar/playlist/2Q8gRevr1EkMqJtvEgCjYI
+
+
 ## Top Twenty
 
+- Moonface -- Daughter of a Dove
+- The New Pornographers -- Champions of Red Wine [or] Fantasy Fools
+- Phantogram -- Fall in Love
 - Future Islands -- Seasons (Waiting on You)
+- Spoon -- Inside Out
 - Angel Olsen -- Windows
+- Owen Pallett -- The Riverbed
+- Hooray for Earth -- Say Enough [or] Keys
+- Caribou -- Silver
+- Trust -- Joyland
+- Hundred Waters -- Murmurs
+- Perfume Genius -- Queen
+- Leon Vynehall -- Time
+- Panda Bear -- Boys Latin
+- Andy Stott -- Violence
+- The War on Drugs -- Red Eyes
+- Wye Oak -- Before
+- Charli XCX f. Simon Le Bon -- Kingdom
+- Perfectshapes -- Miami
+- +/- {Plus/Minus} -- The Bitterest Pill
+
 
 ## The Rest
 
+- Aby Ngana Diop -- Dieuleul-Dieuleul
+- Against Me! -- Transgender Dysphoria Blues
+- Alvvays -- Archie, Marry Me
+- Anenon -- Shibaura
+- Anenon -- Sagrada
+- Angel Olsen -- Lights Out
 - Angel Olsen -- Dance Slow Decades
+- The Antlers -- Palace
+- Aphex Twin -- minipops 67 (source field mix)
+- Avey Tare’s Slasher Flicks -- Little Fang
+- Avi Buffalo -- So What
+- Avi Buffalo -- Overwhelmed with Pride
+- Babe Rainbow -- The Bells
+- Baths -- Ocean Death
+- Baths -- Orator
+- Bear in Heaven -- Time Between
 - Beck -- Morning
 - Beck -- Blue Moon
+- Ben Frost -- Venter
+- Bing & Ruth -- The Towns We Love Is Our Town
 - Bombay Bicycle Club -- So Long, See You Tomorrow
-- Holly Herndon -- Chorus
+- Caribou -- Can’t Do Without You
+- Caribou f. Jessy Lanza -- Second Chance
+- Charli XCX -- Boom Clap
+- CHVRCHES -- Dead Air
+- Cinchel -- Sunlight, Windows, Sleeping Cats
+- Clark -- Banjo
+- Clark -- Everlane
+- Cloud Boat -- Hideaway
+- Cloud Boat -- Hallow
+- Cloudface -- Coffee
+- D’Angelo and The Vanguard -- 1000 Deaths
+- Dalhous -- Thoughts Out of Season
+- DAMH -- Seebestattung
+- Dum Dum Girls -- Rimbaud Eyes
+- Eno & Hyde -- Return
+- Evenings -- Moon Country
+- Faures -- Asthenospheric Movement I
+- Fennesz -- Static Kings
+- Floating Points -- Nuits Sonores
+- The Fourth Wall -- Live Again
+- Girl Talk & Freeway f. Young Chris -- Tell Me Yeah
+- Grimes f. Blood Diamonds -- Go
+- Grouper -- Clearing
+- Hamilton Leithauser -- Alexandra
+- Hospitality -- I Miss Your Bones
 - Hospitality -- Last Words
+- How To Dress Well -- Repeat Pleasure
+- Hundred Waters -- Innocent
+- Ian William Craig -- A Slight Grip, a Gentle Hold (Pt. 2)
+- Interpol -- All the Rage Back Home
+- Inventions -- Echo Tropism
+- Inventions -- Sun Locations/Sun Coda
+- James Blake -- 200 Press
+- Jamie xx -- Sleep Sound
+- Javiera Mena -- Otra Era
+- Javiera Mena -- La Joya
+- Jenny Lewis -- Just One of the Guys
+- John Roberts -- Indigo
+- John Roberts -- Amaranth
+- Karen Gwyer -- Lay Claim to My Grub
+- Koen Holtkamp -- Between Visible Things
+- Kool A.D. -- Open Letter
+- Lawrence English & Stephen Vitiello -- Over Inland
+- Leon Vynehall -- Inside the Deku Tree
+- Leon Vynehall -- Be Brave, Clench Fists
+- Little Dragon -- Klapp Klapp
+- Little Dragon -- Only One
+- Lone -- Jaded
+- Luke Abbott -- Unfurling
+- Luke Abbott -- Free Migration
+- Major Lazer f. Ariana Grande -- All My Love
 - Marissa Nadler -- Drive
+- MCFERRDOG -- Pauly Amorous
+- Millie & Andrea -- Corrosive
+- Mono/Poly -- Alpha & Omega
+- Morgan Delt -- Mr. Carbon Copy
 - Movement -- Like Lust
-- Phantogram -- Fall in Love
+- Neneh Cherry f. Robyn -- Out of the Black
+- The New Pornographers -- Brill Bruisers
+- Nicki Minaj -- Pills N Potions
+- Niia & The Range -- Numb
+- The Notwist -- Kong
+- Objekt -- Dogma
+- Orcas -- Infinite Stillness
+- Orcas -- Half Light
+- Otto A Totland -- Solêr
+- Otto A Totland -- North Way
+- Owen Pallett -- I Am Not Afraid
+- Owen Pallett -- In Conflict
+- Papercuts -- Life Among the Savages
+- Perfume Genius -- Fool
+- Pixelord -- Videobar (Thomas White Remix)
+- Plaid -- Hawkmoth
+- Popcaan -- Hold On
+- Popcaan -- Everything Nice
+- Popcaan -- Waiting So Long
+- Porter Robinson -- Sad Machine
+- Porter Robinson f. Imaginary Cities -- Hear the Bells
+- Porya Hatami -- After the Rain
+- Quilt -- Arctic Shark
+- Quilt -- Tie Up the Tides
+- Quirke -- Break a Mirrored Leg
+- The Range -- Sony
 - Real Estate -- Talking Backwards
+- Real Lies -- North Circular
+- Ricky Eat Acid -- In My Dreams We’re Almost Touching
+- Roman Flügel -- Occult Levitation
+- Röyksopp & Robyn -- Monument
+- Run the Jewels -- Blockbuster Night Part 1
+- S. Carey -- Creaking
+- S. Carey -- Neverending Fountain
 - Sevendeaths -- All Night Graves
-- Sun Kil Moon -- Ben's My Friend
-- The War on Drugs -- Red Eyes
+- Shabazz Palaces -- They Come in Gold
+- Shamir -- On the Regular
+- Sisyphus -- Take Me
+- Small Black -- Lines of Latitude (Dave Harrington Remix)
+- Sofi De La Torre -- Vermillion
+- Spoon -- Do You
+- St. Vincent -- Prince Johnny
+- A Sunny Day in Glasgow -- Bye Bye, Big Ocean (The End)
+- A Sunny Day in Glasgow -- In Love With Useless (The Timeless Geometry in the Tradition of Passing)
+- Symbol -- Tracer
+- SZA f. Isaiah Rashad -- Warm Winds
+- Tame Impala -- Be Above It (from Live Versions)
+- Taylor Swift -- Blank Space
+- Taylor Swift -- Out of the Woods
+- Taylor Swift -- Shake It Off
+- Tennis -- Never Work for Free
+- Tkay Maidza -- U-Huh
+- Trust -- Capitol
+- tUnE-yArDs -- Wait for a Minute
+- Ukkonen -- First Lunation
+- Valentin Stip -- Aletheia
+- Vampire Weekend -- Step (Remix f. Danny Brown, Heems, & Despot)
+- Vic Mensa -- Down on My Luck
+- Viet Cong -- Continental Shelf
+- Walls/Oram -- Extremely Long Corridor
+- Weyes Blood -- Hang On
 - Wild Beasts -- Wanderlust
-
+- Wild Beasts -- Mecca
+- Wild Beasts -- Palace
+- William Tyler -- Whole New Dude
+- A Winged Victory for the Sullen -- Atomos VII (Greenhouse Re-Interpretation)
+- Woods -- Moving to the Left
+- Woods -- Only the Lonely
+- Wye Oak -- The Tower
